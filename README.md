@@ -2,7 +2,7 @@
 - 👀 I’m interested in.. web devlopment,Software devlopment.
 - 🌱 I’m currently learning ..new skills to improve my resume.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me ...phone no:9799900315, Email: ayush159753@gmail.com
 
 <!---
 Ayu947/Ayu947 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
