@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ayush Verma
-- 👀 I’m interested in.. web devlopment,Software devlopment.
+- 👀 I’m interested in.. web devlopment, React Frontend devlopment.
 - 🌱 I’m currently learning ..new skills to improve my resume.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...phone no: +91-9799900315, Email: ayush159753@gmail.com
